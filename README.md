@@ -2,4 +2,4 @@
 
 Hi Everyone
 
-I'am muhamad, iam 21 years old, and i study business
+I'am muhamad, Iam 21 years old, and I study business
